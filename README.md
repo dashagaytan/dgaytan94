@@ -1,0 +1,5 @@
+- 👋🏼 Hi, I’m @dgaytan94
+- 👩🏼‍💻 Code is powered by black coffee. 
+- 🌱 I’m currently learning web-development @Vschool.
+- 💜 I love the outdoors, art, working out & family time. 
+- 📫 How to reach me: see my bio for my socials. 
